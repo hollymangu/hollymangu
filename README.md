@@ -18,9 +18,7 @@ My current research project explores Black British Landmark Preservation.
 
 ## GTKM :
 
-🕊️ I love to yap [blog](https://substack.com/@youseensiya?)
-
-🍇 Proud future mother of a pet hedgehog named Ezekiel
+🕊️ I love design and graphics - [behance](https://www.behance.net/messytype?isa0=1)
 
 🍯 Music production was my introduction to coding
 
